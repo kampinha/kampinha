@@ -6,4 +6,8 @@
  - meu hobby é jogar futsal;
  - tenho 17 anos;
 
-### Entre em contato comigo 
+### Entre em contato comigo 📪
+
+lucas.kampa@escola.pr.gov.br
+
+## @lucass.kampa
